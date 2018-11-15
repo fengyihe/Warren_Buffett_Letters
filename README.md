@@ -1,4 +1,3 @@
-# Warren_Buffett_Letters
 Warren Buffett's Letters to Berkshire Shareholders. 
 
 就像中学学习的时候，大家都喜欢买很多课外的参考资料和习题，但是上课的课本却没有好好看过。
