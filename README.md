@@ -24,5 +24,10 @@ http://www.berkshirehathaway.com/
 1、成为沃伦巴菲特    
 
 
+巴菲特致股东的信：
+[巴菲特致股东的信（全集）](https://xueqiu.com/4649792187/68141627)
+
+
+
 
 
