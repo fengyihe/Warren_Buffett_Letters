@@ -27,6 +27,10 @@ http://www.berkshirehathaway.com/
 巴菲特致股东的信：    
 [巴菲特致股东的信（全集）](https://xueqiu.com/4649792187/68141627)
 
+参考链接：    
+[完更！1957 年 -2019 年巴菲特致股东的信全集](http://www.myzaker.com/article/5cd2440232ce40e43200000b)  
+[巴菲特致股东的信大全集（1957—2016）](http://blog.sina.com.cn/s/blog_61be6fc40102wxnx.html)
+
 
 
 
